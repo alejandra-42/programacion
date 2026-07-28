@@ -2,4 +2,4 @@
 
 profe JC estuvo aquí :trollface:
 socium meneses :shipit:
-manjarate gomez 6️⃣7️⃣
+yo estuve aqui pero quiero ir a casa :😔:
